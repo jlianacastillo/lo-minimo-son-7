@@ -1,0 +1,1 @@
+# lo-minimo-son-7
